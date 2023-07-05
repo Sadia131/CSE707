@@ -6,7 +6,8 @@ Presentation slides (open access to anyone with the link):
 Unlisted youtube video link: 
 [https://youtu.be/xfGdF5sjDGQ](https://youtu.be/2hIe0gMaa2Q)
 
-Paper Link: [https://www.mdpi.com/1424-8220/22/5/2035](http://www.sifisheriessciences.com/index.php/journal/article/view/1238/638)http://www.sifisheriessciences.com/index.php/journal/article/view/1238/638
+Paper Link: [https://www.mdpi.com/1424-8220/22/5/2035]
 
 Team Number: 03
+
 23166021  Sadia Islam
